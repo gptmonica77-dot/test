@@ -6,6 +6,6 @@ gjjg
 khkhk
 gj
 
-kbk
+k
 jl
 kjkjk
